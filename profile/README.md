@@ -1,7 +1,5 @@
-## Hi there 👋
 
-
-# me diga entao
+## me diga entao
 
 como fiquei assim
 
